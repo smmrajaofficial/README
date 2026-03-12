@@ -11,4 +11,6 @@ https://sites.google.com/view/smm-raja/home
 
 https://gravatar.com/unabashedlyballooneb51e0c29d
 
+https://www.smmraja.com/blog/what-is-an-smm-panel-and-how-does-it-work
+
 
